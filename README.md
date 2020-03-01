@@ -1,1 +1,0 @@
-# gabrielcedran.github.io
